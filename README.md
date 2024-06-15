@@ -1,5 +1,5 @@
 
-SHAIK  YASEEN  PASHA
+YASEEN  PASHA SHAIK
 
 shaikyaseenpasha8@gmail.com
 
