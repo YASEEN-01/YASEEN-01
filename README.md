@@ -3,7 +3,7 @@ YASEEN  PASHA SHAIK
 
 shaikyaseenpasha8@gmail.com
 
-+91 8008269211
++1 4375662035
 
 CAREER OBJECTIVE:
 
